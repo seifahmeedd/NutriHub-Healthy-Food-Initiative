@@ -36,7 +36,7 @@ NutriHub is a proposed online resource hub designed to promote healthy eating ha
 
 - **Web Development**: $13,000–$28,000  
 - **Content Creation**: $4,000–$16,000  
-- **Marketing & Promotion**: $4,000–$16,000  
+- **Marketing & Promotion**: $8,000–$18,000  
 - **Ongoing Costs**: $17,000–$24,000/year
 
 ---
